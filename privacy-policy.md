@@ -11,4 +11,4 @@ The app does not collect, store, or share any personal data from users.
 I may update our Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes.
 
 ### Contact
-If you have any questions or suggestions about my Privacy Policy, contact me at: **your@email.com**
+If you have any questions or suggestions about my Privacy Policy, contact me at: **lpretorius16.poppie@email.com**
